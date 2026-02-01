@@ -1,0 +1,1 @@
+# yakupaltintas.github.io
